@@ -22,4 +22,4 @@
 We do not sell your personal data to third parties.
 
 ## Contact
-Email: naveedullah088@gmail.com
+Email: lamhti.firebase@gmail.com
