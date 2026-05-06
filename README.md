@@ -22,4 +22,4 @@
 We do not sell your personal data to third parties.
 
 ## Contact
-Email: support@lamhti.com
+Email: naveedullah088@gmail.com
